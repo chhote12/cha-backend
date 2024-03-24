@@ -1,0 +1,3 @@
+#chai aour vakc serics
+this is  a video serions on bakcend
+-[model link](https://www.youtube.com/redirect?event=video_description&redir_token=QUFFLUhqbDVhakVIS05FaXdNZTJadldreGtoLTNkNlhJd3xBQ3Jtc0tuSnd5VW12S2VHZ0ZKVkJiaGVybFAyMGZPUzFDMG5hVVBvVUZtMEFEcGtlajF0Vi1aVHFfeFV0cFZ6V29uU2RWZktyb3ZleVZ5a3lxT2ozN3Z3T2VjTE5LRHQzN25Qcms2cWJxWktrOWtKeXdnUnRCVQ&q=https%3A%2F%2Fapp.eraser.io%2Fworkspace%2FYtPqZ1VogxGy1jzIDkzj%3Forigin%3Dshare&v=9B4CvtzXRpc)
